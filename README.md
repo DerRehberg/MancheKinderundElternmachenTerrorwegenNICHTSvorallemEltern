@@ -8,3 +8,5 @@ gibt son Spruch in Deutschland und weil die solche Quengelkinder sind und alles 
 Da sagen die, die wollen ne Erklärung, weißte, wir sollten denen ne Windel anziehen, meine Meinung! Weißte, auf Fehler überprüfen wäre sogar sinnvoller, deswegen, basta!
 
 <img width="735" height="461" alt="image" src="https://github.com/user-attachments/assets/0ec040dd-e6b5-4f91-af88-47eceb0db751" />
+
+Wo Klaus Schwaab in der Eisdiele?
