@@ -10,3 +10,7 @@ Da sagen die, die wollen ne Erklärung, weißte, wir sollten denen ne Windel anz
 <img width="735" height="461" alt="image" src="https://github.com/user-attachments/assets/0ec040dd-e6b5-4f91-af88-47eceb0db751" />
 
 Wo Klaus Schwaab in der Eisdiele?
+
+Wenn mans noch besser machen will, 2 Großschritte:
+
+<img width="734" height="739" alt="image" src="https://github.com/user-attachments/assets/65338f38-24d3-472f-8a08-e8a45f110da2" />
