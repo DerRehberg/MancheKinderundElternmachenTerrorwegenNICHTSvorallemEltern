@@ -14,3 +14,9 @@ Wo Klaus Schwaab in der Eisdiele?
 Wenn mans noch besser machen will, 2 Großschritte:
 
 <img width="734" height="739" alt="image" src="https://github.com/user-attachments/assets/65338f38-24d3-472f-8a08-e8a45f110da2" />
+
+
+Unabhängig dieser Kack Eiscreme Sache hab Ich was wichtiges verstanden, Ich bin mir logischerweise Sicher dass derzeit das tausendjährige Reich läuft da Jesus Christus wohlmöglich Regigigas eingesperrt hat da es Satan sein müsste, da es Satan ist, sehen wir diese beiden Dokus... verstehen wir warum überhaupt Menschen Leben.
+
+https://www.youtube.com/watch?v=KRvv0QdruMQ
+https://www.youtube.com/watch?v=KRvv0QdruMQ
