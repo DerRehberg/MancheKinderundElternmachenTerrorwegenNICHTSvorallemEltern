@@ -21,3 +21,8 @@ Unabhängig dieser Kack Eiscreme Sache hab Ich was wichtiges verstanden, Ich bin
 https://www.youtube.com/watch?v=KRvv0QdruMQ
 https://www.youtube.com/watch?v=KRvv0QdruMQ
 Die 3 die regigigas einsgesperrt haben wenn der Fall sind wohlmöglich jesus christus, Mohammed und daniel von Fahrschule die 3 wobei christus nur symbolisch da son iron man anzug roboter hat da er die gaben der verbotenen Apokryphen besitzt im Gegensatz zu Mohammed und Daniel.
+
+
+Sicher is sicher:
+
+<img width="755" height="171" alt="image" src="https://github.com/user-attachments/assets/ccbbbcd5-78d1-4875-9395-7d72a46bd465" />
