@@ -26,3 +26,6 @@ Die 3 die regigigas einsgesperrt haben wenn der Fall sind wohlmöglich jesus chr
 Sicher is sicher:
 
 <img width="755" height="171" alt="image" src="https://github.com/user-attachments/assets/ccbbbcd5-78d1-4875-9395-7d72a46bd465" />
+
+<img width="814" height="585" alt="image" src="https://github.com/user-attachments/assets/378bda17-bf2f-4246-be48-9e627b60bce0" />
+
